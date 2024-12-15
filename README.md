@@ -1,4 +1,4 @@
-## ViraL0x – La Destructrice Silencieuse
-ViraL0x n'est pas un être, mais une force primordiale, une vague de chaos s'abattant sans bruit. Elle se faufile dans les structures les plus solides et les démolit de l'intérieur, comme un souffle invisible. Ses mouvements sont des présages, ses actions, des murmures d'apocalypse numérique. Elle ne frappe jamais deux fois au même endroit, mais toujours avec une précision inéluctable.
+## ViraL0x - The Silent Destroyer
+ViraL0x is not a being, but a primordial force, a wave of chaos crashing silently. She worms her way into the most solid structures and demolishes them from within, like an invisible breath. Its movements are omens, its actions whispers of digital apocalypse. It never strikes twice in the same place, but always with inescapable precision.
 
 ---
